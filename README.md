@@ -1,4 +1,4 @@
-# Unlock
+# Unlock.
 App Privacy Policy
 
 Pierre-Damien Gicquel built the Unlock. app as a Commercial app. This SERVICE is provided by Pierre-Damien Gicquel and is intended for use as is.
